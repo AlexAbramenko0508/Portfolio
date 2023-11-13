@@ -24,7 +24,7 @@
 
 ## Связь со мной
 - [Telegram](https://t.me/sad_sheeran)
-- [Email](mrsheeron@yandex.ru)
-- [Phone](+79895151792)
+- Email: mrsheeron@yandex.ru
+- Phone: +79895151792
 
 Благодарю за посещение моего портфолио!
